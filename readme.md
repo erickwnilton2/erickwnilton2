@@ -1,0 +1,2 @@
+- Sou @erickwnilton
+- Desenvolvedor de software
